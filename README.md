@@ -15,5 +15,5 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 ![rohit-tandon-9wg5jCEPBsw-unsplash](https://github.com/ZlozieCode/ZlozieCode/assets/92716726/d6bd0789-ae0e-4370-86f6-67b232eab9c5)
-![Firefly Zlozie-food 23569](https://github.com/ZlozieCode/ZlozieCode/assets/92716726/ee525146-b952-460b-88d4-c9b0347ed659)
+
 
